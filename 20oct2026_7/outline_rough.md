@@ -1,0 +1,25 @@
+# Jesus  is not God Almighty
+
+## Intro
+ 
+  - “He looks or acts just like his dad”
+    - Often compare a child to the parent in some manner.
+        - Never mistake the child for the parent
+  - Some say "Jesus is God Almighty" Why?
+    - False Doctrine from Christendom
+  - Bible teach?
+    - Jesus state?
+  
+    
+
+
+Jesus’s father is Jehovah, and we look at Jesus as the perfect reflection of Jehovah’s qualities and loyal love as mentioned in John 14:9.  But just like a son or daughter will quickly correct someone who calls them by their parents’ name, we can see Jesus call out those who make this false assumption. Let’s find this in John 14:28
+
+Did you catch who Jesus is going to visit  in the latter half of the verse?
+Jesus specifically states “you would rejoice that I am going to the Father, for the Father is Greater then I am”.  Jesus calls out that he is going to see his father in heaven, Jehovah. Why might this be a cause for rejoicing?
+
+Just like a child may return to their parent when they need help or direction on a matter, Jesus returned to Jehovah to follow his direction on leading the Christian congregation, and ruling Jehovahs kingdom at the appointed time. How do we know this? Let’s look at the organization layout that Jehovah inspired to be recorded at 1 Corinthians 11:3, and look at how authority and accountability or headship are organized.
+
+So who is Jesus accountable to, and what is the source of his authority? As we note in the last portion of the verse, Jesus is accountable to Jehovah, and is granted authority by Jehovah  to lead the congregation, and rule over the heavens and earth as Jehovah’s appointed King.
+
+So is Jesus “God Almighty? We see from Jesus’s own words, and Jehovah being the head of Jesus, and Jesus being in subjection to Jehovah the clear  answer of no to that false teaching.
