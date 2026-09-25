@@ -4,13 +4,22 @@
  
   - “He looks or acts just like his dad”
     - Often compare a child to the parent in some manner.
-        - Never mistake the child for the parent
+        - Never mistake child for the parent or vice versa
   - Some say "Jesus is God Almighty" Why?
     - False Doctrine from Christendom
   - Bible teach?
     - Jesus state?
-  
-    
+    - relationship?
+  - Father of Jesus?
+    - Jehovah
+    - John 14:9
+    - Reflection of his Father
+      - Qualities
+      - Loyal Love
+
+ ## Middle
+  - Jesus says ?
+    - John 14:28
 
 
 Jesus’s father is Jehovah, and we look at Jesus as the perfect reflection of Jehovah’s qualities and loyal love as mentioned in John 14:9.  But just like a son or daughter will quickly correct someone who calls them by their parents’ name, we can see Jesus call out those who make this false assumption. Let’s find this in John 14:28
