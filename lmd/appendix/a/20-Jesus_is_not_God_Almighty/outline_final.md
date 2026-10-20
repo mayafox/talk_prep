@@ -39,7 +39,7 @@
     - leading the Christian congregation.
     - ruling as Jehovahs king at appointed time.
   - Proof? Organization layout in **1 Corintians 11:3**
-    - Note Authority, and Accountability (headship) 
+    - Note the order of headship. 
   - Jesus is accountable to Jehovah
     - Granted authority 
       - to lead the congregation
