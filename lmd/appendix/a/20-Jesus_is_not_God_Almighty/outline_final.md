@@ -12,15 +12,16 @@
     - Jesus state?
     - relationship?
   
-  ## Father of Jesus?
-    - Colossians 1:15b
-      - "first born of all creation"
-      - Jehovah created Jesus first
-    - John 14:9 
-      - "Whoever has seen me has seen the Father also."
-      - Reflection of his Father (looks and acts like)
-        - Qualities
-        - Loyal Love
+## Father of Jesus?
+  
+  - Colossians 1:15b
+    - "first born of all creation"
+    - Jehovah created Jesus first
+  - John 14:9 
+    - "Whoever has seen me has seen the Father also."
+    - Reflection of his Father (looks and acts like)
+      - Qualities
+      - Loyal Love
 
 ## Jesus says?
 
