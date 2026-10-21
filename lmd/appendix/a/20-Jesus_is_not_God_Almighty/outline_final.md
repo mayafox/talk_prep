@@ -2,7 +2,7 @@
 
 ## Intro
  
-  - “He looks or acts just like his dad”
+  - “He looks or acts just like his Father”
     - Often compare a child to the parent in some manner.
         - Never mistake child for the parent or vice versa
   - Some say "Jesus is God Almighty" 
