@@ -26,20 +26,17 @@
 ## Jesus says?
 
   - **John 14:28**
-    - Visits Who, and who is greater?
+    - **Visits Who, and who is greater?**
     - “you would rejoice that I am going to the Father, for the Father is Greater then I am”.
     - Calls out he is going to see his Father, who is greater the Jesus.
 
 ## Relationship?
 
-  - Child returns when help, advice or direction needed.
-    - Child doing this recognizes the 'headship' of thier parent.
-    - May be told to do a task, and held accountable (such as holding the flashlight when working in the dark)
-  - Jesus returned to follow Jehovahs direction:
-    - leading the Christian congregation.
-    - ruling as Jehovahs king at appointed time.
-  - Proof? Organization layout in **1 Corintians 11:3**
-    - Note the order of headship. 
+  - Child returns when help, advice or direction needed
+    - May be told to do a task, and held accountable for it.
+    - Child doing this recognizes the 'headship' of their parent.
+  - **1 Corintians 11:3**
+    - **Note the order of headship.** 
   - Jesus is accountable to Jehovah
     - Granted authority 
       - to lead the congregation
