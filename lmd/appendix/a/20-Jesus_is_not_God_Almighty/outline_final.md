@@ -50,5 +50,5 @@
     - Jesus own words
     - Jehovahs headship as Jesus's Father
     - Jesus subjection to that headship
-  - No to that false teaching
+  - Jesus is not god almighty.
 
